@@ -1,90 +1,90 @@
 ##Chapter 1
 
 
-Nik awoke suddenly, with that terrible feeling of not knowing where he was. There were dim lights, intermittent beeping, and the smell of vinegar and...meatloaf? Maybe not meatloaf, but something just as Òdown-homeÓ. As the cobwebs of sleep lifted, Nik came to realize that he was in a hospital. 
+Nik awoke suddenly, with that terrible feeling of not knowing where he was. There were dim lights, intermittent beeping, and the smell of vinegar and...meatloaf? Maybe not meatloaf, but something just as â€œdown-homeâ€. As the cobwebs of sleep lifted, Nik came to realize that he was in a hospital. 
 
 *Did I check myself in?* He asked himself cautiously. 
 
-He probed his recent memory; nothing. The last thing he remembered was the sound of the train rolling by. He was walking, yeah thatÕs right, he was walking along the street on the way to his apartment, the train rattling by the tracks across the streetÑhorn tooting randomly.Perhaps he remembered fumbling for his keys? Yes, definitely, he dropped his keys (a not unusual event) and spouted some generic curse. Then he picked them up, thumbed through the keys until he found the correct one, and put it in the lock, turning it, and simultaneously turning the doorknob and pushing the door open. He also remembered the smell of a pizza long-ago cooked, and more sadly, long-ago eaten. He remembered meandering through the living room, bypassing the TV with a game of something paused, giving off piercing blue light throughout the otherwise dark apartment. 
+He probed his recent memory; nothing. The last thing he remembered was the sound of the train rolling by. He was walking, yeah thatâ€™s right, he was walking along the street on the way to his apartment, the train rattling by the tracks across the streetâ€”horn tooting randomly.Perhaps he remembered fumbling for his keys? Yes, definitely, he dropped his keys (a not unusual event) and spouted some generic curse. Then he picked them up, thumbed through the keys until he found the correct one, and put it in the lock, turning it, and simultaneously turning the doorknob and pushing the door open. He also remembered the smell of a pizza long-ago cooked, and more sadly, long-ago eaten. He remembered meandering through the living room, bypassing the TV with a game of something paused, giving off piercing blue light throughout the otherwise dark apartment. 
 
-His internal detective work was interrupted by a slight knock at the door, and the quick entrance of someone, someone who clearly did not mean the knock sincerelyÑsince they entered before the sound had even reached NikÕs ears.
+His internal detective work was interrupted by a slight knock at the door, and the quick entrance of someone, someone who clearly did not mean the knock sincerelyâ€”since they entered before the sound had even reached Nikâ€™s ears.
 
- ÒMrÉ.Ó
+ â€œMrâ€¦.â€
 
-ÒPresiel.Ó Nik blurted almost involuntarily.
+â€œPresiel.â€ Nik blurted almost involuntarily.
 
-ÒThanksÉÓ the intruder said slightly surprised. ÒWell, thatÕs a pretty good sign.Ó
+â€œThanksâ€¦â€ the intruder said slightly surprised. â€œWell, thatâ€™s a pretty good sign.â€
 
-ÒWhat, that I can remember my last name?Ó Nik quipped a bit sarcastically.
+â€œWhat, that I can remember my last name?â€ Nik quipped a bit sarcastically.
 
-The man, who by now Nik surmised was a doctor, looked up from the chart he was holding. He looked Nik square in the eyes, in a way that Nik was not quite used to at this point in his 20 years of life. He took a short breath before sayingÑin a voice that was soaked with measure and confidenceÑ ÒFrankly, yes. With the amount of Clonazepam, Pethidine, and Alcohol you ingested, remembering your name would usually be a Herculean task at this point.Ó
+The man, who by now Nik surmised was a doctor, looked up from the chart he was holding. He looked Nik square in the eyes, in a way that Nik was not quite used to at this point in his 20 years of life. He took a short breath before sayingâ€”in a voice that was soaked with measure and confidenceâ€” â€œFrankly, yes. With the amount of Clonazepam, Pethidine, and Alcohol you ingested, remembering your name would usually be a Herculean task at this point.â€
 
-It hit him like a ton of bricks. The pale green pills, the pale blue pills, the bottle of gin with a name he didnÕt know, or didnÕt care to remember. They were all there, on his desk, neatly arranged, and he remembered thinking something like *letÕs just get rid of all this*. But it wasnÕt quite clear what Òall thisÓ was referring to.
+It hit him like a ton of bricks. The pale green pills, the pale blue pills, the bottle of gin with a name he didnâ€™t know, or didnâ€™t care to remember. They were all there, on his desk, neatly arranged, and he remembered thinking something like *letâ€™s just get rid of all this*. But it wasnâ€™t quite clear what â€œall thisâ€ was referring to.
 
-ÒMrÉÓ the doctor started, but smiled, taking a conservative course of verbal action ÒNik. Was it your goal to end your life two nights ago?Ó
+â€œMrâ€¦â€ the doctor started, but smiled, taking a conservative course of verbal action â€œNik. Was it your goal to end your life two nights ago?â€
 
-Nik was unsure how to answer. *Was it? Was that night it?* He thought to himself. How could he even begin to judge what he was thinking that night? And was that *really* two nights ago? He broke the silence of pause: ÒI am pretty sure it wasnÕt.Ó
+Nik was unsure how to answer. *Was it? Was that night it?* He thought to himself. How could he even begin to judge what he was thinking that night? And was that *really* two nights ago? He broke the silence of pause: â€œI am pretty sure it wasnâ€™t.â€
 
-With an unexpected lack of doubt, the doctor closed his chart, looked Nik in the eyes, and said. ÒItÕs still night, and IÕd like you to get some more sleepÑtry to align yourself with the rhythm of the day. Someone will be in in the morning, to check on you. IÕd advise you be honest with themÑplease.Ó
+With an unexpected lack of doubt, the doctor closed his chart, looked Nik in the eyes, and said. â€œItâ€™s still night, and Iâ€™d like you to get some more sleepâ€”try to align yourself with the rhythm of the day. Someone will be in in the morning, to check on you. Iâ€™d advise you be honest with themâ€”please.â€
 
-Nik nodded, but didnÕt say anything. He felt himself getting more and more tired, and based on what he did remember, knew that his body would need all the sleep it could get to recover from what he had done to it.
+Nik nodded, but didnâ€™t say anything. He felt himself getting more and more tired, and based on what he did remember, knew that his body would need all the sleep it could get to recover from what he had done to it.
 
 
 
-Nik awoke to the sound of shuffling feet in his room. Someone was moving around rhythmically, almost as if dancing to a silent song. As he scrubbed the sleep away from his eyes, he noticed that though the sun was shining into the room, the whole room seemed pale, as if the gray clouds that the sun was hiding behind were thicker and more degrading to the sunÕs rays than usual. The meditation on color was interrupted by a voice.
+Nik awoke to the sound of shuffling feet in his room. Someone was moving around rhythmically, almost as if dancing to a silent song. As he scrubbed the sleep away from his eyes, he noticed that though the sun was shining into the room, the whole room seemed pale, as if the gray clouds that the sun was hiding behind were thicker and more degrading to the sunâ€™s rays than usual. The meditation on color was interrupted by a voice.
 
-ÒMr. Presiel?Ó the voice said, almost singing. ÒHow are you feeling this morning?Ó
+â€œMr. Presiel?â€ the voice said, almost singing. â€œHow are you feeling this morning?â€
 
-Nik was amazed that the woman had pronounced his name correctly. Not only that, she had pronounced it the way that NikÕs great-grandfather had, in full Slovakian accent, though her accent was obviously non-European, more likely Middle-Eastern.
+Nik was amazed that the woman had pronounced his name correctly. Not only that, she had pronounced it the way that Nikâ€™s great-grandfather had, in full Slovakian accent, though her accent was obviously non-European, more likely Middle-Eastern.
 
-ÒYes,Ó he said, with as much of a normal voice as he could muster ÒIÕm uh...I feel pretty good.Ó And, actually, he did feel strangely okay. Last nightÑor whenever that wasÑhe felt groggy, sluggish, heavy, and his stomach was tying itself into knots viciously. Today was almost the complete opposite. He didnÕt feel great, but he felt *okay*, as if he could get up and go walk around.  
+â€œYes,â€ he said, with as much of a normal voice as he could muster â€œIâ€™m uh...I feel pretty good.â€ And, actually, he did feel strangely okay. Last nightâ€”or whenever that wasâ€”he felt groggy, sluggish, heavy, and his stomach was tying itself into knots viciously. Today was almost the complete opposite. He didnâ€™t feel great, but he felt *okay*, as if he could get up and go walk around.  
 
-ÒWell, I am glad to hear it.Ó The soft voice said. Nik was now focused on the source of the voice. It was a woman; tall and strong-looking. She had light gray hair, pale caramel skin, and a face that seemed to be in a constant state of being in between a smile and a completely neutral state. ÒI think you have had sufficient rest. If youÕre feeling up to it, IÕd like to talk about your situation.Ó
+â€œWell, I am glad to hear it.â€ The soft voice said. Nik was now focused on the source of the voice. It was a woman; tall and strong-looking. She had light gray hair, pale caramel skin, and a face that seemed to be in a constant state of being in between a smile and a completely neutral state. â€œI think you have had sufficient rest. If youâ€™re feeling up to it, Iâ€™d like to talk about your situation.â€
 
-Nik froze. He recalled the doctor, or whoever it was, from the previous encounter. He recalled the question heÕd been asked, and the fact that he didnÕt know quite how to answer it. His sleep hadnÕt gained him any more insight into how to answer the question, and surely, this is what his new visitor was hinting at.
+Nik froze. He recalled the doctor, or whoever it was, from the previous encounter. He recalled the question heâ€™d been asked, and the fact that he didnâ€™t know quite how to answer it. His sleep hadnâ€™t gained him any more insight into how to answer the question, and surely, this is what his new visitor was hinting at.
 
-ÒUm, I guess,Ó Nik began to dribble Òbut, um...I donÕt know if I can give any good answers to your questions.Ó
+â€œUm, I guess,â€ Nik began to dribble â€œbut, um...I donâ€™t know if I can give any good answers to your questions.â€
 
-The new visitor smiled and looked Nik in the eyes, almost as if she were somehow collecting data from them, as he sat silently. She put her hand on the hospital comforter that lay on top of his leg and saidÑkeeping her smile intact, ÒI am not going to ask you about what happened. I believe the past is yours to deal with on your own terms, and with whoeverÕs help you choose to ask for. What I am here to do is to make sure that youÕre ready to go.Ó
+The new visitor smiled and looked Nik in the eyes, almost as if she were somehow collecting data from them, as he sat silently. She put her hand on the hospital comforter that lay on top of his leg and saidâ€”keeping her smile intact, â€œI am not going to ask you about what happened. I believe the past is yours to deal with on your own terms, and with whoeverâ€™s help you choose to ask for. What I am here to do is to make sure that youâ€™re ready to go.â€
 
-ÒYou mean, go home?Ó Nik asked, with a tinge of anxiety that he was certain escaped into the air of the room.
+â€œYou mean, go home?â€ Nik asked, with a tinge of anxiety that he was certain escaped into the air of the room.
 
-Again the visitor maintained the smileÑthat impossible smile, which as the seconds passed, started to almost irritate Nik. Who was she to smile like that, in a place like this, in a situation like this? For all she knew, Nik wanted to die, and had failed in his attempt, and meant to go right back out and do it again, and the blood would presumably be on her hands. She had to be a doctor right? He scanned her torso and saw a nametag on her impossibly white lab coat. *Azrin* it read. Nik decided to use his newfound acquisition to move the conversation along. But before he could, she broke in.
+Again the visitor maintained the smileâ€”that impossible smile, which as the seconds passed, started to almost irritate Nik. Who was she to smile like that, in a place like this, in a situation like this? For all she knew, Nik wanted to die, and had failed in his attempt, and meant to go right back out and do it again, and the blood would presumably be on her hands. She had to be a doctor right? He scanned her torso and saw a nametag on her impossibly white lab coat. *Azrin* it read. Nik decided to use his newfound acquisition to move the conversation along. But before he could, she broke in.
 
-ÒMr. Presiel.Ó She said softly ÒWhere you go is up to you. I would, however, suggest that you do two things.Ó She held up two fingers, as if to further drive her point home. ÒI suggest that you take it easy for the immediate future, and that you be somewhere where you know you can have time to be at peace.Ó
+â€œMr. Presiel.â€ She said softly â€œWhere you go is up to you. I would, however, suggest that you do two things.â€ She held up two fingers, as if to further drive her point home. â€œI suggest that you take it easy for the immediate future, and that you be somewhere where you know you can have time to be at peace.â€
 
-Nik felt a bit defensive. ÒI really wasnÕt trying to kill myself. I just...I just stopped giving a shit for an hour or two.Ó
+Nik felt a bit defensive. â€œI really wasnâ€™t trying to kill myself. I just...I just stopped giving a shit for an hour or two.â€
 
-Again, the smile. Dr. Azrin waited for Nik to finish his sentence and the calmly said. ÒMmm. Perhaps you weren't, but to be perfectly honest with you, that doesnÕt really matter now.Ó As she finished, she kind of raised her eyebrows as she peered into NikÕs eyes. It was strangely comforting.
+Again, the smile. Dr. Azrin waited for Nik to finish his sentence and the calmly said. â€œMmm. Perhaps you weren't, but to be perfectly honest with you, that doesnâ€™t really matter now.â€ As she finished, she kind of raised her eyebrows as she peered into Nikâ€™s eyes. It was strangely comforting.
 
-ÒI guess.Ó Nik answered somewhat sheepishly, looking down at his covers. ÒI mean, in the end, I did something dangerous, and I guess, whatever my thoughts were, I need a break.Ó
+â€œI guess.â€ Nik answered somewhat sheepishly, looking down at his covers. â€œI mean, in the end, I did something dangerous, and I guess, whatever my thoughts were, I need a break.â€
 
-ÒMmm.Ó Dr. Azrin barely let slip as she nodded knowingly. ÒYou can leave whenever you like, IÕve given my authorization. However, IÕd like to talk to you again. IÕd like to begin a dialogue, if that is okay with you.Ó
+â€œMmm.â€ Dr. Azrin barely let slip as she nodded knowingly. â€œYou can leave whenever you like, Iâ€™ve given my authorization. However, Iâ€™d like to talk to you again. Iâ€™d like to begin a dialogue, if that is okay with you.â€
 
 Nik swallowed hard, just the thought of wading through the muck of his emotions over the past few years almost making him naseous. He looked up, as the lump traveled down his esophagus.
 
-ÒOkay.Ó He said in a subdued, but sharp offering. ÒI think I can do that.Ó
+â€œOkay.â€ He said in a subdued, but sharp offering. â€œI think I can do that.â€
 
 Dr. Azrin smiled, but this smile was a bit different than the previous monotone display.
-ÒGreat.Ó She said curtly ÒMy card is in the bag with your things.Ó She pointed at a clear vinyl bag on the hospital end table. It held NikÕs jeans, his now off-white undershirt, his thin navy blue sweater, and presumably his wallet, watch, and other personal effects.
+â€œGreat.â€ She said curtly â€œMy card is in the bag with your things.â€ She pointed at a clear vinyl bag on the hospital end table. It held Nikâ€™s jeans, his now off-white undershirt, his thin navy blue sweater, and presumably his wallet, watch, and other personal effects.
 
 With that, she left, stopping only to glance over at the clock, and write something down in a small book that she had been carrying in her hand. Nik decided not to waste any time, and slowly peeled the covers off of his legs. He noticed that he was not hooked up to IVs, and there were no monitors keeping track of his vitals. He guessed that the doctor was right, in that he was free to go. He removed his clothes from the bag, and laid them on the hospital bed. He made a quick project of removing the hosptial gown and speedily throwing on his boxers, jeans, shirt, sweater, socks, and shoes. With the placement of his wallet and watch, he stepped out the door, and made his way down the hall.
-He stopped at the nursesÕ station, and waited until a young woman turned around. She was striking, and caused Nik to feel as if was about to stagger back and fall over, but he quickly ensured that his feet were both planted firmly on the ground, and began to open his mouth.
+He stopped at the nursesâ€™ station, and waited until a young woman turned around. She was striking, and caused Nik to feel as if was about to stagger back and fall over, but he quickly ensured that his feet were both planted firmly on the ground, and began to open his mouth.
 
-ÒCan I help you?Ó The woman asked pleasantly.
+â€œCan I help you?â€ The woman asked pleasantly.
 
-ÒUh, yeah,Ó nick stuttered, ÒI um, Is there anything I need to pay, or signÑlike insurance stuff, or anything?Ó
+â€œUh, yeah,â€ nick stuttered, â€œI um, Is there anything I need to pay, or signâ€”like insurance stuff, or anything?â€
 
-The woman looked down, then quickly looked up. ÒNope. Everything has been squared away. YouÕre good to go.Ó She shuffled a few pieces of paper out of NikÕs view, and under the desk. ÒYouÕll receive any paperwork at the address inÉÓ she paused as she found the address on a piece of paper Ò...Caribou.Ó
+The woman looked down, then quickly looked up. â€œNope. Everything has been squared away. Youâ€™re good to go.â€ She shuffled a few pieces of paper out of Nikâ€™s view, and under the desk. â€œYouâ€™ll receive any paperwork at the address inâ€¦â€ she paused as she found the address on a piece of paper â€œ...Caribou.â€
 
-ÒCaribou?Ó Nik half asked, half assured himself.
+â€œCaribou?â€ Nik half asked, half assured himself.
 
-ÒYes, I have an address in Caribou, Minnesota.Ó The woman confirmed, and looked up at Nik.
+â€œYes, I have an address in Caribou, Minnesota.â€ The woman confirmed, and looked up at Nik.
 
-Nik wondered for a second why he wouldÕve given that address, but as he did, it made perfect sense. His uncleÕs old farm was the best place for him to go now, and though he may not have thought of it at any other time, whatever state he was in when he gave that address...well perhaps this was some sort of sign.
+Nik wondered for a second why he wouldâ€™ve given that address, but as he did, it made perfect sense. His uncleâ€™s old farm was the best place for him to go now, and though he may not have thought of it at any other time, whatever state he was in when he gave that address...well perhaps this was some sort of sign.
 
-ÒYeah, thatÕs right.Ó Nik replied, with a fresh, manufactured confidence.
+â€œYeah, thatâ€™s right.â€ Nik replied, with a fresh, manufactured confidence.
 
 The woman smiled at him, and began to turn her body back to the conversation she had left with the other nurses. As she did, she let out a soft farewell, seemingly trying as best she could to straddle the line between sincere well-wishing and invasive presumptuousness.
 
-ÒBest wishes, Mr. Presiel.Ó She said. 
+â€œBest wishes, Mr. Presiel.â€ She said. 
