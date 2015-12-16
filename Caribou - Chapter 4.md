@@ -1,0 +1,8 @@
+Chapter 4
+---------
+
+The key to the house was exactly where it had been since Nik was a child: under a loose board under the door mat—an extra layer of protection against whatever breakers-and-enterers would be wandering about in the middle of nowhere. He picked the key up, being careful to replace the board and the mat, aligning the latter with the discolored area of the porch where the door mat protected that small section of the boards on the porch from the elements, year in and year out.
+
+He gazed up at the door. It was a curiously ornate door, darkly stained, solid wood, with a large, square section of leaded glass at the top. The square contained entire sections of colored pieces---reds and blues intermingling with yellows, a well-orchestrated symphony of primary colors playing against complex etchings in the glass. Through it he could see the scrambled light coming through the windows that separated the kitchen from the three-seasons porch. The light began to shimmer and dance---as if it were beckoning Nik to come through the threshold---or as if clouds were passing between it and the open plains. Nik took the cue and turned the key in the door, jiggling it ever so slightly, remembering that in past years a simple turn of the key would not suffice to grant one entry.
+
+The door opened, and the smell of the old house hit Nik instantly. It was a mix somewhere in between woodsy and musky,  the remnants of years of prairie home-cooked dinners and autumnal open windows. It was strangely comforting.  
