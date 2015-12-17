@@ -1,11 +1,11 @@
 ##Chapter 1
 
 
-Nik awoke suddenly, with that terrible feeling of not knowing where he was. There were dim lights, intermittent beeping, and the smell of vinegar and...meatloaf? Maybe not meatloaf, but something just as “down-home”. As the cobwebs of sleep lifted, Nik came to realize that he was in a hospital. 
+Nik awoke with that terrible feeling, the feeling of not knowing where he was. There were dim lights, intermittent beeps, and the smell of vinegar and...was that meatloaf? Maybe not meatloaf, but something just as “down-home”. As the cobwebs of sleep lifted, Nik came to realize that he was in a hospital.
 
 *Did I check myself in?* He asked himself cautiously. 
 
-He probed his recent memory; nothing. The last thing he remembered was the sound of the train rolling by. He was walking, yeah that’s right, he was walking along the street on the way to his apartment, the train rattling by the tracks across the street—horn tooting randomly.Perhaps he remembered fumbling for his keys? Yes, definitely, he dropped his keys (a not unusual event) and spouted some generic curse. Then he picked them up, thumbed through the keys until he found the correct one, and put it in the lock, turning it, and simultaneously turning the doorknob and pushing the door open. He also remembered the smell of a pizza long-ago cooked, and more sadly, long-ago eaten. He remembered meandering through the living room, bypassing the TV with a game of something paused, giving off piercing blue light throughout the otherwise dark apartment. 
+He probed his recent memory; nothing. The last thing he remembered was the sound of the train rolling by. He was walking, yeah that’s right, he was walking along the street on the way to his apartment, the train rattling by the tracks across the street—horn tooting randomly.Perhaps he remembered fumbling for his keys? Yes, definitely, he dropped his keys (a not unusual event) and spouted some generic curse. Then he picked them up, thumbed through the keys until he found the correct one, and put it in the lock, turning it, and simultaneously turning the doorknob and pushing the door open. He also remembered the smell of a pizza long-ago cooked, and more sadly, long-ago eaten. He remembered meandering through the living room, bypassing the TV with a game of something paused, giving off piercing blue light throughout the otherwise dark apartment.
 
 His internal detective work was interrupted by a slight knock at the door, and the quick entrance of someone, someone who clearly did not mean the knock sincerely—since they entered before the sound had even reached Nik’s ears.
 
@@ -87,4 +87,4 @@ Nik wondered for a second why he would’ve given that address, but as he did, i
 
 The woman smiled at him, and began to turn her body back to the conversation she had left with the other nurses. As she did, she let out a soft farewell, seemingly trying as best she could to straddle the line between sincere well-wishing and invasive presumptuousness.
 
-“Best wishes, Mr. Presiel.” She said. 
+“Best wishes, Mr. Presiel.” She said.
