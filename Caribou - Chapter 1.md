@@ -19,7 +19,7 @@ His internal detective work was interrupted by a slight knock at the door, and t
 
 The man, who by now Nik surmised was a doctor, looked up from the chart he was holding. He looked Nik square in the eyes, in a way that Nik was not quite used to at this point in his 20 years of life. He took a short breath before saying—in a voice that was soaked with measure and confidence— “Frankly, yes. With the amount of Clonazepam, Pethidine, and Alcohol you ingested, remembering your name would usually be a Herculean task at this point.”
 
-It hit him like a ton of bricks. The pale green pills, the pale blue pills, the bottle of gin with a name he didn’t know, or didn’t care to remember. They were all there, on his desk, neatly arranged, and he remembered thinking something like *let’s just get rid of all this*. But it wasn’t quite clear what “all this” was referring to.
+It hit him like a ton of bricks. The pale green pills, the pale blue pills, the bottle of gin with a name he didn’t know, or didn’t care to remember. They were all there, on his desk, neatly arranged, and he remembered thinking something like *let’s just get rid of all this*. But it wasn’t quite clear what “all this” referred to.
 
 “Mr…” the doctor started, but smiled, taking a conservative course of verbal action “Nik. Was it your goal to end your life two nights ago?”
 
